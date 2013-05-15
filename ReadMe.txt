@@ -1,0 +1,1 @@
+This folder contains transcriptions received from iSoftStone and shared with Orion.
